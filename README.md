@@ -9,5 +9,5 @@
 
 
 ## você pode entrar contato comigo por esse email 🌿##
-    - thomas.manfiolete.correa@escola.pr.gov.br #
+    - thomas.manfiolete.correa@escola.pr.gov.br -
 ![](https://media.tenor.com/Mo6dx3S9g6oAAAAd/demonic-cursed.gif)
